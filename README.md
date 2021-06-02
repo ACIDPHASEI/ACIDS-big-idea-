@@ -1,0 +1,2 @@
+# ACIDS-big-idea-
+I want to code and create the most successful program in the worol i want it to be inside of everythng down to cars,tvs,moniters,computers, every big tome company will want my program I am currently 13 years old and I have a dream i grew up in a broken home and it time to change the cycle time to change the family  name forever I have the motivation to do this no matter what happens I will do this.
